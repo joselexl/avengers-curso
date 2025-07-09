@@ -2,4 +2,4 @@
 
 * Dr. Doom
 * Red Skull
-* Dr. Josele
+* Capitan España
